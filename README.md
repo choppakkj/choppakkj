@@ -1,9 +1,11 @@
 ### Boa vindas👋
 
   Renan dos Santos Domingues
-
+  
 • Sou estudante do Colégio Estadual Newton Ferreira da Costa.
+
 • Sou corinthiano, ou seja, gosto de futebol.
+
 • Gosto de assitir séries, animes, etc.
 
 ### Você pode entrar em contato comigo mandando mensagem no meu e-mail a baixo👍
