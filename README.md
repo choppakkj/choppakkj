@@ -4,7 +4,7 @@
 
    • Sou estudante do Colégio Estadual Newton Ferreira da Costa
 
-### Você pode entrar em contato comigo mandando mensagem nomeu e-mail a baixo
+### Você pode entrar em contato comigo mandando mensagem no meu e-mail a baixo👍
   
   renan.santos.domingues@escola.pr.gov.br
   
