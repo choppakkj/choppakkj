@@ -4,7 +4,7 @@
   
 • Sou estudante do Colégio Estadual Newton Ferreira da Costa.
 
-• Sou corinthiano, ou seja, gosto de futebol.
+• Sou corinthiano  fazer o que o melhor time de todos, ou seja, gosto de futebol.
 
 • Gosto de assitir séries, animes, etc.
 
